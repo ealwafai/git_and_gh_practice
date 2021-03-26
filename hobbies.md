@@ -1,0 +1,3 @@
+Hiking
+Camping
+Video Games
